@@ -1,1 +1,1 @@
-Here's all the links for each course or concept or whatever
+Here's all the lists of resources for each thing in the courses & concepts map
