@@ -1,6 +1,6 @@
 # WIP
 
-## Youtube guides
+## Youtube Vids & Playlists
 
 ## MOOCs
 
